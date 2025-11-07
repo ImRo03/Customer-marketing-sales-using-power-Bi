@@ -1,3 +1,4 @@
+<img width="1552" height="735" alt="Screenshot 2025-11-07 182921" src="https://github.com/user-attachments/assets/8823d383-9171-445d-95f0-e538a382ee62" />
 
 #  Customer Marketing Insights Dashboard
 
